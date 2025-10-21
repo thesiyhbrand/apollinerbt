@@ -1,2 +1,2 @@
 # apollinerbt
-created with cursor ai | Awwwards website
+created by Amarjeet | Awwwards website
